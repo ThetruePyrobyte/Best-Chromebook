@@ -41,6 +41,4 @@ For zip ones (Ones with the .zip file ending)
 We only made some of these, and we are not responsible for any of them. By using these, you agree to those terms. If you have a reasonable objection to something being on this repo, tell me and I'll remove it immediately.
 
 # Other
-If you have any issues or ideas, please tell me in discussions (https://github.com/dragon731012/-WORKING-bookmarklets-and-games/discussions/2).
-
-Please enter my code 8B6M1B on fetch and get some fetch coins! https://referral.fetch.com/vvv3/referraltext?code=8B6M1B
+If you have any issues or ideas, please tell me via email Pyro.Byte.outlook.com or on my webpage on google sites https://sites.google.com/d/1ELWe12SqZ62iqZpvHmbzD0fZ4dZdxYUJ/p/1p-w0bz7iZH-GlpwQ5JPi9aubW_ATu_EE/edit?pli=1 
